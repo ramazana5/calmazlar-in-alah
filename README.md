@@ -1,1 +1,0 @@
-# calmazlar-in-alah
